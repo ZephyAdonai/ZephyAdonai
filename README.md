@@ -1,4 +1,4 @@
 - 👋 Hi, I’m @ZephyAdonai
 - 👀 I’m interested in becoming a Pantomath
-- 🌱 I’m currently learning Python coding!
+- 🌱 I’m currently learning everything!
 - 📫 How to reach me ... @zephyadonai (instagram) or zephynelms@gmail.com
